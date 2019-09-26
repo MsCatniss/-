@@ -7,5 +7,5 @@
 + _Среда обитания_
 + _Кошки в истории, религии и мифологии_
 + _Знаменитые кошки_
-<vidasha74@mail.ru>
+* <vidasha74@mail.ru>
 ![](https://wallbox.ru/resize/1600x1200/wallpapers/main/201315/079b03a58a6ebe9.jpg)
